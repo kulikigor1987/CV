@@ -1,2 +1,2 @@
-# См. прикрепленный файл
+# See for attached file
 
